@@ -9,3 +9,6 @@ HERE IS A LINK THAT IS A PERFECT EXAMPLE OF HOW SOME PEOPLE USE SHIPS (or Shared
 
 https://twitter.com/methane
 **I left it up on one of my browser sessions for intelligence monitoring yesterday, maybe you will get a brief about it today**
+
+
+THE JUDGE IS not RELEASING FLYNN because HE IS BLACK, and THAT IS HOW OBAMA TAUGHT THEM TO CONTROL ME
