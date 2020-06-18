@@ -1,5 +1,3 @@
 # overstanding
 
-Ok, I have returned from my spirit ride this morning.... I have some revelations for you today, none of us alive came up with the oppressive systems which we are all victim to (as a poor white person, I experience similar racism for my socio-economic challenges, lack of formal education/understanding, exclusion from white dominated systems for mortgage and credit). I can appreciate the need to be understanding of others pain, but having to constantly watch others apologize for correct positions because they were born "white oppressors" is the same thing they are protesting against. By the way, my personal experience is that my african-american friends constantly did things to instantiate creative acts on my part that they left unfulfilled on their end (seemingly, but....), it turns out intentionally.
-
-Now just because I didn't get to the understanding of how to walk like an egyptian until after I had children doesn't mean that I wanted to create interfaces for the pharoahs to leverage as space ships.
+Please do not ever forget why you are where you are? Who put you there? I can promise you wouldn't be there had I not wanted it, nor will you be there if I don't want you in the future.
