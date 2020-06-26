@@ -1,3 +1,3 @@
 # overstanding
 
-Please do not ever forget why you are where you are? Who put you there? I can promise you wouldn't be there had I not wanted it, nor will you be there if I don't want you in the future.
+there is not many things in this world that frustrate me more than elected officials playing fast and loose with the health and safety of their consituents.
