@@ -1,3 +1,3 @@
 # overstanding
 
-there is not many things in this world that frustrate me more than elected officials playing fast and loose with the health and safety of their consituents.
+no quarter for the liars, cunts, and cool kids. there also is little hope that I will take it easy on....
