@@ -1,2 +1,4 @@
 # overstandings
-why not wish in one hand, shit in the other and see which fills first don  XD
+ain't gotta cheat ya to beat ya  XD
+
+-g0d
