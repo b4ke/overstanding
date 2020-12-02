@@ -1,4 +1,4 @@
 # overstandings
-i am proud of you for coming to that part of the grieving process.... Congratulations on your adulthood. lol
+oh boy.... to think that you will have the freedom to run for president in four years had me so tickled i peed a little when i laughed. Thanks, Don.
 
--g0d
+-g0d(the capital one, but there is no reason to be assertive with something like you)
