@@ -1,4 +1,4 @@
 # overstandings
-oh boy.... to think that you will have the freedom to run for president in four years had me so tickled i peed a little when i laughed. Thanks, Don.
+well.... well.... well.... spirits don't soar for you, demons come through the aether within forms on your behalf(if i release the lock).
 
--g0d(the capital one, but there is no reason to be assertive with something like you)
+-g0d
