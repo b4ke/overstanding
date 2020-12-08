@@ -1,6 +1,4 @@
 # overstandings
-well.... well.... well.... spirits don't soar for you, demons come through the aether within forms on your behalf(if i release the lock).
-
-YOU LOST BY A LOT OF VOTES! GET OVER YOURSELF!
+it's over.... today is the safe harbor, and you STILL LOSE DONALD!
 
 -g0d
