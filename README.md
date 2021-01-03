@@ -1,4 +1,4 @@
 # overstanding /s
-well i do know one thing.... it will be nice for it to be boring again.
+while i am sure that there some part of your mind which tells you that you could not lose, but you did, and this outburst will change nothing either way.
 
--Michael
+-mic a.k.a. g0d
