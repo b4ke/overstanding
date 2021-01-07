@@ -1,4 +1,4 @@
 # overstanding /s
-it's over don, and if you continue to push this.... i will teach you a lesson you will never escape.
+when we labor to deceive in a box we go....
 
 -mic a.k.a. g0d
